@@ -26,6 +26,6 @@ Si quieres conocer mis proyectos, colaborar conmigo o contactar para futuras opo
 - **Portfolio:** (https://www.artstation.com/aadriangonz)
 - **GitHub:** [Enlace a tu perfil].
 - **LinkedIn:** [Enlace a tu perfil].
-- **Correo electrónico:** adrianosso29@gmailcom.
+- **Correo electrónico:** adrianosso29@gmail.com
 
 ¡Gracias por visitar mi perfil y conocer un poco más sobre mí!
